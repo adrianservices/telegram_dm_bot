@@ -12,5 +12,23 @@
 
 ✅%100 Automatically!
 
+✅ Works for all systems!
+
+✅ Send DM to AS MUCH AS PEOPLE YOU WANT!
+
+✅ Lots of unique features!
+
+✅ No flood wait, no ban!
+
+✅ Works with the speed of light!
+
+✅ Cheap Prices!
+
+✅ Easy to run!
+
+✅ 100% Automatic!
+
+✅ DM me for more info.
+
 DM me from Telegram: https://t.me/swiftservicesowner if you are interested.🤝
 
